@@ -1,16 +1,13 @@
-## Hi there 👋
+Hello, Sinners. 
 
-<!--
-**gabriel-number1judge/gabriel-number1judge** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+It is I, Gabriel, Slayer of Minos and Archangel of the Council of Heaven.
 
-Here are some ideas to get you started:
+I have no Pronouns, only hate for THAT GOD-FORSAKEN MACHINE!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I AM DONE WITH THE MACHINE'S GAMES
+I WILL END IT
+HERE
+AND
+NOW!!
+
+guys i lost gonna go weep by a campfire :')
