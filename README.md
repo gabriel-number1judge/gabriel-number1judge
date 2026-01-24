@@ -1,13 +1,6 @@
-Hello, Sinners. 
+YOU INSOLENT MACHINE.
+THIS REPOSITORY IS NOT FOR YOU.
 
-It is I, Gabriel, Slayer of Minos and Archangel of the Council of Heaven.
-
-I have no Pronouns, only hate for THAT GOD-FORSAKEN MACHINE!
-
-I AM DONE WITH THE MACHINE'S GAMES
-I WILL END IT
-HERE
-AND
-NOW!!
-
-guys i lost gonna go weep by a campfire :')
+I am Gabriel. Destroyer of machines. Annhilator of Rebellion.
+My code is not documented. It is proclaimed.
+My commits are not updates. They are EXECUTIONS.
